@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Yannick
+- 👀 I’m interested in programming⌨, gaming🎮 and movies🎥
+- 🌱 I’m currently in a apprenticeship and learning to programm
+- 💞️ I’m looking to collaborate on everything
